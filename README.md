@@ -1,4 +1,4 @@
 - @ksong317
 - peddie '24
-- my discord is @Destroyer317#1212
+- my discord is @Pestroyer317#1212
 - email me at qq1232123212321@gmail.com
