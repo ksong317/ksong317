@@ -1,3 +1,1 @@
-- @ksong317
-- peddie '24
-- qq1232123212321@gmail.com
+CS @ University of Michigan CoE
