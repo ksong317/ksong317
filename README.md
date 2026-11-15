@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 CS @ University of Michigan College of Engineering<br>🧠 Interested in software engineering<br>🔍 Currently learning FastAPI and AWS
+👨‍💻 CS @ University of Michigan College of Engineering<br>🧠 Interested in software engineering and cybersecurity<br>
 
 
 ## 🌐 Socials:
